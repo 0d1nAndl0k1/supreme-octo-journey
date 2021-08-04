@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages [about us](about.md)
+## Welcome to My Page
 
 You can use the [editor on GitHub](https://github.com/0d1nAndl0k1/supreme-octo-journey/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
