@@ -9,4 +9,4 @@ Well i am a person who like to code, play games, and climb cliffs
 
 [Instagram](https://www.instagram.com/mickeymonster2007/)  :post life stuff and memes.
 
-[discord](isane#6811)
+Discord  :isane#6811
